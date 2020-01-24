@@ -1,1 +1,0 @@
-# Hrechkosii-Nikolay.github.io
